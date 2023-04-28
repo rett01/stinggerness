@@ -1,3 +1,3 @@
 # stinggerness
 wa ragud!
-  ato na
+  ato mana
